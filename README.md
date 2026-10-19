@@ -1,4 +1,4 @@
-# Janani-Induwara
+# JIndu2
 # Hi there! 👋 I'm Janani Induwara
 
 🎓 **BSc (Hons) Electronic and Telecommunication Engineering Undergraduate**
